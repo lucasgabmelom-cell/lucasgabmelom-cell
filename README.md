@@ -55,7 +55,7 @@
 ##  Contato
 
 - Email: lucasgabmelom@gmail.com  
-- LinkedIn: https://linkedin.com/in/seu-link  ](https://www.linkedin.com/in/lucas-melo-a136703b0?utm_source=share_via&utm_content=profile&utm_medium=member_android)
+- LinkedIn: https://www.linkedin.com/in/lucas-melo-a136703b0?utm_source=share_via&utm_content=profile&utm_medium=member_android)
 
 ---
 
